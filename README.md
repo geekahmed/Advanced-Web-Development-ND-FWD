@@ -31,3 +31,4 @@ By enrolling in this track, you will gain comprehensive knowledge that will guar
 
 **Certificate**
 
+![enter image description here](https://i.imgur.com/UpVPLqj.png)
